@@ -10,6 +10,6 @@ Off the field, the IPL continued to captivate audiences worldwide, drawing immen
 
 Amidst the excitement and fervor, the IPL also served as a platform for emerging talents to showcase their skills and make a mark on the cricketing world. Youngsters seized the opportunity to shine on the big stage, leaving a lasting impression with their performances.
 
-The 2022 and 2023 IPL seasons were not without their share of controversies and challenges. However, the resilience of the players, the commitment of the teams, and the unwavering support of fans ensured that the spirit of cricket remained undiminished.
+The 2008 and 2023 IPL seasons were not without their share of controversies and challenges. However, the resilience of the players, the commitment of the teams, and the unwavering support of fans ensured that the spirit of cricket remained undiminished.
 
 As the IPL continued to evolve and grow, it reaffirmed its status as one of the premier T20 leagues globally, setting new benchmarks in cricketainment and reinforcing India's position as a powerhouse in the world of cricket. With each season, the IPL cements its place as a spectacle that transcends boundaries, uniting cricket enthusiasts from all walks of life in a celebration of the sport.
