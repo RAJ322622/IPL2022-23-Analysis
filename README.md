@@ -1,6 +1,6 @@
 **IPL 2008 to 2023 EDA**
 _________________________________________________________________________________________________________________________
-From 2022 to 2023, the Indian Premier League (IPL) witnessed significant moments and developments. The seasons were marked by intense competition, thrilling matches, and noteworthy performances by both seasoned players and emerging talents. Teams strategized meticulously, aiming to secure victories and ultimately clinch the coveted IPL title.
+From 2008 to 2023, the Indian Premier League (IPL) witnessed significant moments and developments. The seasons were marked by intense competition, thrilling matches, and noteworthy performances by both seasoned players and emerging talents. Teams strategized meticulously, aiming to secure victories and ultimately clinch the coveted IPL title.
 
 Several franchises underwent transformations in their squad compositions, bringing in fresh faces through auctions and trades while retaining key players. This led to a dynamic mix of experience and youth within teams, fostering competitive cricket throughout the tournament. The battle for supremacy on the field was intense, with every match presenting its own set of challenges and opportunities.
 
